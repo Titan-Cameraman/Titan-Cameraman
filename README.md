@@ -5,7 +5,17 @@
 - 📫 How to reach me ... https://steamcommunity.com/id/Titan_1_Of_3/
 Simple,Add Me And I Will Get Back To You When I Get The Chance.
 
-<!---
-Titan-Cameraman/Titan-Cameraman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+I also do animatons, so i post em whenever i get the chance thares 7 rn.
 --->
+(1) https://clipchamp.com/watch/v8Whpz4H94e 
+(2) https://clipchamp.com/watch/wNn66c6squC  
+(3) https://clipchamp.com/watch/oZ0Mr8KRGM4 
+(4) https://clipchamp.com/watch/7y39md0q6pk 
+(5) https://clipchamp.com/watch/IVOtOX04IPM 
+(6) https://clipchamp.com/watch/8JMgQGqBLv1 
+(7) https://clipchamp.com/watch/5Vy2HTGJ6KG 
+
+
+
+
+Funfact, i'm not a youtuber 8 is WIP.
